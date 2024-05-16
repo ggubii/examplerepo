@@ -12,3 +12,5 @@ what do you call a cow with no legs? ground beef.
 
 john and ben are the same age
 john is 20, ben is 22
+
+What's a pirate's favorite letter? "Rrrrrr" "No! It be the C!"
