@@ -7,3 +7,5 @@ it looks like a shoe
 You better spell check yourself before your spell wreck yourself.
 
 why did the bicycle fall over? because its two-tired
+
+what do you call a cow with no legs? ground beef.
