@@ -18,3 +18,5 @@ What's a pirate's favorite letter? "Rrrrrr" "No! It be the C!"
 why don't some couples go to the gym? because their relationships don't work out
 
 Why do ducks have tail feathers? To cover their butt quacks.
+
+why dont people that hates fruits drive? because they dont avocado
