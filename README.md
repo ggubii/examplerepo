@@ -22,3 +22,5 @@ Why do ducks have tail feathers? To cover their butt quacks.
 why dont people that hates fruits drive? because they dont avocado
 
 Why did the chicken cross the road, roll in some dirt, then cross back? Because he's a dirty double crosser.
+
+i cant think of any dad jokes
