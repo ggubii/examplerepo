@@ -5,3 +5,5 @@ coding is tricky
 it looks like a shoe
 
 You better spell check yourself before your spell wreck yourself.
+
+why did the bicycle fall over? because its two-tired
